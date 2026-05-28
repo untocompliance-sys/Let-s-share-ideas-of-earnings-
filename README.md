@@ -1,1 +1,0 @@
-# Let-s-share-ideas-of-earnings-
